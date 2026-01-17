@@ -55,3 +55,10 @@ Negociação feita exclusivamente via Instagram:
 
 👉 **[@andreyzkb](https://www.instagram.com/andreyzkb/)**
 
+![c81835e3-7f98-41bf-b9e2-85993d96a43f](https://github.com/user-attachments/assets/a607a445-442b-4d54-a5df-cd070520e4af)
+![00742d93-1650-4e77-a5a3-be8e7fd10709](https://github.com/user-attachments/assets/611a0992-8124-41d3-807e-d26b62434f03)
+![397d46a7-de8f-4d59-a506-f720ce7c1cdb](https://github.com/user-attachments/assets/378e0d7e-e109-46d5-8ed0-9372c440096f)
+![d304e7cf-369f-4499-a4db-27e960cec487](https://github.com/user-attachments/assets/2770feab-2cac-4e35-8733-3b894fff56c1)
+
+
+
